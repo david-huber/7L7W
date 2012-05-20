@@ -1,3 +1,3 @@
 7L7W
 ====
-Seven languages.  ~Seven~ Fourteen weeks.
+Seven languages.  ~~Seven~~ Fourteen weeks.
